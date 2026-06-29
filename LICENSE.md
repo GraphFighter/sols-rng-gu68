@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with kaizen custom Script, the #1 Script. Includes custom skins and teleport for unbeatable performance.
 
 
 
